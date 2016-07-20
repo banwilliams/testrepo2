@@ -1,1 +1,1 @@
-1st edit by them
+1st edit by theme
